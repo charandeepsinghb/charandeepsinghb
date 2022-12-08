@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @charandeepsinghb
+- 👋 Hi, I’m Charandeep Singh
 - 👀 I’m interested in learning
 - 🌱 I’m currently learning
 - 💞️ I’m looking to collaborate
